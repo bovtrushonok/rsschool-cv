@@ -14,3 +14,17 @@
 
 **2011 - 2015** _BSEU, marketing and logistics. Logistics Bsc._   
    
+### Experience
+
+**Jan 2018 - Jan 2020** _Deputy head of the dapertment_
+  * Responsible for department KPI
+  * Support and monitor sub-departments
+  * Communication with key international and local partners  
+  
+**July 2017 - Jan 2020** _Supplier relationship manager_
+   * Business negotiation and company presentation
+   * Control logistics processes
+   * Prepare reports and analytics    
+   
+**July 2015 - June 2017** _Logistics manager_   
+   * Full cycle of procurement
