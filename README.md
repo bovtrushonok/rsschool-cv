@@ -1,1 +1,1 @@
-# rsschool-cv
+https://bovtrushonok.io/rsschool-cv/cv
